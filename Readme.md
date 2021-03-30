@@ -8,3 +8,6 @@ Gostou do curso?. Quer mais? Ajude com uma doação, qualquer café é válido!
 
 
 Saiba mais em [willanjusten.com.br](http://willanjusten.com.br)
+
+
+Acesse meu perfil do linkedin em [linkedin.com.br] (http://www.linkedin.com/in/caio-sun-8678661a0)
